@@ -1,0 +1,2 @@
+# dondonzikio-yini
+yoshlikni eslaymiz
